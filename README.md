@@ -6,4 +6,4 @@
 
 💬 Ask me about anything
 
-📫 How to reach me: insta (_emphemaral.19)
+📫 How to reach me: insta (_emphemeral.19)
